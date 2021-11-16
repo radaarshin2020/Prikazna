@@ -1,0 +1,2 @@
+# Prikazna
+Izbrano misli
